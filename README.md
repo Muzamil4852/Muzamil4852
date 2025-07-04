@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Muzamil Qazi
-- 👀 I’m interested in feand editing
+- 👀 I’m interested in coding and editing
 - 🌱 I’m currently learning  Some frontend coding skills
 - 💞️ I’m looking to collaborate on Editing
 - 📫 How to reach me messege me on insta muzamilqazi
